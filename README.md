@@ -1,0 +1,1 @@
+# rough-n-ready-korean-word-list-with-cc0
